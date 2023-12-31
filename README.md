@@ -8,7 +8,7 @@
 
 - 🤝 I’m looking for help with [Cebu Van for Rental](https://jackass0528.github.io/Cebu-Van-For-Rental/)
 
-- 📫 How to reach me **Ronald@cebuvanforrental.com**
+- 📫 How to reach me **cebufooddroid2015@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
